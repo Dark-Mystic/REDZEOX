@@ -4,7 +4,7 @@
 <img src="RedzeoX.png" alt="Dark-Mystic" width="2050"/>
 </div>
 
-<h3 align="center"> ʜᴇʟʟᴏ ᴛʜᴇʀᴇ ɪ𝙼'𝙳𝙰𝚁𝙺-𝙼𝚈𝚂𝚃𝙸𝙲 <img
+<h3 align="center"> ʜᴇʟʟᴏ ᴛʜᴇʀᴇ ɪ𝙼'𝗗𝗔𝗥𝗞-𝗠𝗬𝗦𝗧𝗜𝗖 <img
 src="https://media.tenor.com/B1tV14bHvNMAAAAi/anime.gif" width="90px"></h3>
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=FF0000&lines=ɪ+ᴋɪʟʟᴇᴅ+ᴍʏ+ᴏᴡɴ+ʜᴀᴘᴘɪɴᴇꜱꜱ+...+✨⚡🥰.;ꜱᴀʏ.ꜱᴄᴏᴛᴄʜ+💔)](https://git.io/typing-svg)
